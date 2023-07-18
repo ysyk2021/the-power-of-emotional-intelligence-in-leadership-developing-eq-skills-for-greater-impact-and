@@ -8,5 +8,4 @@ Whether you're a new manager looking to develop your leadership skills or an exp
 
 Let's embark on the journey of developing emotional intelligence for greater leadership effectiveness!
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
