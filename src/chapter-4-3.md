@@ -1,4 +1,4 @@
-Chapter 8: Strategies for Enhancing Social Awareness
+Strategies for Enhancing Social Awareness
 ====================================================
 
 In this chapter, we will explore effective strategies for enhancing social awareness, a key component of emotional intelligence (EQ) in leadership. By developing social awareness, leaders can better understand and navigate the emotions, needs, and dynamics of individuals and groups within their organization.

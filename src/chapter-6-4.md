@@ -1,4 +1,4 @@
-Chapter 10: Utilizing Nonverbal Communication Techniques
+Utilizing Nonverbal Communication Techniques
 ========================================================
 
 In this chapter, we will explore the power of nonverbal communication in leadership and strategies for utilizing nonverbal techniques to enhance emotional intelligence (EQ) and achieve greater impact and success.

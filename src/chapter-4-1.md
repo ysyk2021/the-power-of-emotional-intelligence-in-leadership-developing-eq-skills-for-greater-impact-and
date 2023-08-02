@@ -1,4 +1,4 @@
-Chapter 6: Understanding Empathy and Its Importance in Leadership
+Understanding Empathy and Its Importance in Leadership
 =================================================================
 
 Empathy plays a crucial role in effective leadership. It is the ability to understand and share the feelings, perspectives, and experiences of others. In this chapter, we will explore the concept of empathy and how it can significantly impact leadership effectiveness and success.

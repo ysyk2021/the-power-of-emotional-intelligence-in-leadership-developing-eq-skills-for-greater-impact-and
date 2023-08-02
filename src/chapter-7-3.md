@@ -1,4 +1,4 @@
-Chapter 13: Strategies for Addressing Difficult Situations
+Strategies for Addressing Difficult Situations
 ==========================================================
 
 Leaders often encounter difficult situations that require careful navigation and effective decision-making. In this chapter, we will explore strategies and approaches that leaders can utilize to address challenging circumstances with emotional intelligence and achieve positive outcomes.

@@ -1,4 +1,4 @@
-Chapter 5: Utilizing Active Listening Techniques
+Utilizing Active Listening Techniques
 ================================================
 
 Active listening is a fundamental skill that leaders can harness to enhance their emotional intelligence and foster stronger connections with their teams. In this chapter, we will explore various active listening techniques and understand how they contribute to greater impact and success in leadership.

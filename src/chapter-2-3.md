@@ -1,4 +1,4 @@
-Chapter 2: Assessing Your Own EQ Level
+Assessing Your Own EQ Level
 ======================================
 
 Assessing your emotional intelligence (EQ) level is a crucial step towards developing and enhancing your EQ skills for greater impact and success in leadership. In this chapter, we will explore various methods and tools that can help you evaluate your EQ competencies and identify areas for improvement.

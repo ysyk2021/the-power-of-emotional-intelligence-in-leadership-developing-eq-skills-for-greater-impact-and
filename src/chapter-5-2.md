@@ -1,4 +1,4 @@
-Chapter 10: Techniques for Building Strong Relationships
+Techniques for Building Strong Relationships
 ========================================================
 
 Building strong relationships is a fundamental aspect of effective leadership and harnessing the power of emotional intelligence. In this chapter, we will explore various techniques that leaders can use to cultivate strong relationships with their team members, colleagues, and stakeholders, leading to greater impact and success.

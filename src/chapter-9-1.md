@@ -1,4 +1,4 @@
-Chapter 9: Tracking Progress and Measuring Results
+Tracking Progress and Measuring Results
 ==================================================
 
 In the ever-changing landscape of leadership, tracking progress and measuring results is crucial for leaders to evaluate their effectiveness and drive continuous improvement. In this chapter, we will explore strategies and tools for tracking progress and measuring the impact of emotional intelligence (EQ) on leadership success. By establishing clear metrics and assessment mechanisms, leaders can gain valuable insights into their EQ development journey and make informed decisions to enhance their leadership capabilities.

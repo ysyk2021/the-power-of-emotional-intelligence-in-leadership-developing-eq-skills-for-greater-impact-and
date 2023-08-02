@@ -1,4 +1,4 @@
-Chapter 9: Understanding the Causes of Conflict in the Workplace
+Understanding the Causes of Conflict in the Workplace
 ================================================================
 
 Conflict is a natural part of any workplace, and leaders who understand its causes can effectively manage and resolve conflicts. In this chapter, we will explore the common causes of conflict in the workplace, providing insight and strategies for leaders to address and mitigate conflicts for greater impact and success.

@@ -1,4 +1,4 @@
-Chapter 7: Strategies for Developing Trust and Respect
+Strategies for Developing Trust and Respect
 ======================================================
 
 Developing trust and respect is crucial for effective leadership and cultivating a positive work environment. In this chapter, we will explore various strategies that leaders can employ to build trust and respect with their teams, leading to greater impact and success.

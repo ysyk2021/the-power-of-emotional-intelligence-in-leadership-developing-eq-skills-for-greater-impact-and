@@ -1,4 +1,4 @@
-Chapter 3: Understanding the Four Components of EQ
+Understanding the Four Components of EQ
 ==================================================
 
 Emotional intelligence (EQ) is a multifaceted skill set that plays a vital role in effective leadership. In this chapter, we will explore the four components of EQ and delve into how each component contributes to greater impact and success in leadership.

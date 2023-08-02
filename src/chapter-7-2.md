@@ -1,4 +1,4 @@
-Chapter 12: Techniques for Resolving Conflicts
+Techniques for Resolving Conflicts
 ==============================================
 
 Conflict is a natural part of interpersonal relationships, and effective leaders must possess the skills to resolve conflicts in a constructive and positive manner. In this chapter, we will explore various techniques that leaders can employ to effectively resolve conflicts, foster collaboration, and maintain a harmonious work environment.

@@ -1,4 +1,4 @@
-Chapter 6: Handling Difficult Conversations
+Handling Difficult Conversations
 ===========================================
 
 In this chapter, we will explore the importance of handling difficult conversations with emotional intelligence as a leader. Effective communication in challenging situations is crucial for maintaining positive relationships, resolving conflicts, and fostering growth within teams. This chapter will provide strategies and techniques to navigate difficult conversations successfully.

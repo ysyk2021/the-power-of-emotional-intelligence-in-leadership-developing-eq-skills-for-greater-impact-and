@@ -1,4 +1,4 @@
-Chapter 7: Strategies for Communicating with Different Personality Types
+Strategies for Communicating with Different Personality Types
 ========================================================================
 
 Communication is a critical aspect of effective leadership. It becomes even more important when interacting with individuals who have different personality types. In this chapter, we will explore strategies for understanding and communicating with various personality types to foster stronger connections and maximize leadership impact.

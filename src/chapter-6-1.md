@@ -1,4 +1,4 @@
-Chapter 7: Understanding the Role of Communication in EQ
+Understanding the Role of Communication in EQ
 ========================================================
 
 Effective communication is a fundamental aspect of emotional intelligence (EQ) that plays a crucial role in leadership. In this chapter, we will explore how communication influences EQ and its impact on achieving greater success and making a significant leadership impact.

@@ -1,4 +1,4 @@
-Chapter 14: Understanding the Importance of Relationship Building in Leadership
+Understanding the Importance of Relationship Building in Leadership
 ===============================================================================
 
 Building strong relationships is a fundamental aspect of effective leadership. In this chapter, we will explore the significance of relationship building and how emotional intelligence plays a crucial role in fostering meaningful connections with others.

@@ -1,4 +1,4 @@
-Chapter 5: Developing Effective Communication Skills
+Developing Effective Communication Skills
 ====================================================
 
 In this chapter, we will explore the importance of developing effective communication skills in the context of emotional intelligence (EQ) and leadership. Effective communication is a critical component of successful leadership, enabling leaders to connect, influence, and inspire others. By enhancing our communication skills, we can strengthen our leadership impact and achieve greater success.
