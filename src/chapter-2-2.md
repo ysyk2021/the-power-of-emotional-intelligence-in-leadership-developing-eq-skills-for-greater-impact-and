@@ -3,7 +3,7 @@ Understanding the Four Components of EQ
 
 Emotional intelligence (EQ) is a multifaceted skill set that plays a vital role in effective leadership. In this chapter, we will explore the four components of EQ and delve into how each component contributes to greater impact and success in leadership.
 
-1. Self-Awareness
+1\. Self-Awareness
 -----------------
 
 Self-awareness forms the foundation of emotional intelligence. It involves recognizing and understanding one's own emotions, strengths, weaknesses, values, and goals. Leaders with high self-awareness have a clear understanding of their emotions, how they influence their thoughts and behaviors, and how they impact others.
@@ -16,7 +16,7 @@ By developing self-awareness, leaders can:
 
 * Cultivate authenticity and empathy: Leaders who are self-aware are more likely to be authentic and genuine, which fosters stronger connections with their teams. They can empathize with others' emotions and respond with compassion and understanding.
 
-2. Self-Management
+2\. Self-Management
 ------------------
 
 Self-management encompasses the ability to control and direct one's emotions, thoughts, and behaviors in constructive ways. Effective self-management enables leaders to navigate challenging situations with composure, resilience, and adaptability.
@@ -29,7 +29,7 @@ Key aspects of self-management include:
 
 * Proactive response to change: Leaders who excel in self-management embrace change as an opportunity for growth. They adapt quickly to new circumstances, display flexibility, and inspire their teams during transitions.
 
-3. Social Awareness
+3\. Social Awareness
 -------------------
 
 Social awareness involves perceiving and understanding the emotions, needs, and concerns of others. Leaders with high social awareness are attuned to the dynamics within their teams and the broader organizational context. This allows them to build relationships, foster inclusivity, and create a supportive work environment.
@@ -42,7 +42,7 @@ Components of social awareness include:
 
 * Recognizing nonverbal cues: Socially aware leaders are adept at reading nonverbal cues, such as body language and facial expressions. This ability allows them to better interpret others' emotions and adjust their communication accordingly.
 
-4. Relationship Management
+4\. Relationship Management
 --------------------------
 
 Relationship management involves building and cultivating positive and productive relationships with others. Leaders skilled in relationship management inspire and influence their teams, resolve conflicts, and create a collaborative and engaged work environment.
