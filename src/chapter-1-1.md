@@ -1,5 +1,3 @@
-Understanding the Importance of Emotional Intelligence in Leadership
-===============================================================================
 
 Emotional intelligence (EI) is a critical factor in effective leadership. In this chapter, we will delve into the significance of emotional intelligence and how it contributes to leadership success.
 

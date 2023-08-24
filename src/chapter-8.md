@@ -1,5 +1,3 @@
-Chapter 8: Leading with Emotional Intelligence
-==============================================
 
 Emotional intelligence (EQ) is a critical skill for effective leadership, enabling leaders to understand and manage their own emotions and those of others. In this chapter, we will explore how to apply EQ skills to leadership, create a positive work environment, inspire and motivate employees, and develop high-performing teams.
 

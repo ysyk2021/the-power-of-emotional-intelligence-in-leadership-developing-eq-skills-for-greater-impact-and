@@ -1,5 +1,3 @@
-Chapter 10: Conclusion
-======================
 
 Emotional intelligence (EQ) is a critical component of effective leadership. Leaders who possess strong EQ skills are better equipped to connect with their team members, inspire and motivate them, and make sound decisions that benefit the organization. In this chapter, we will recap key EQ skills for leaders and offer final thoughts and advice.
 

@@ -1,5 +1,3 @@
-Chapter 5: Building Relationships
-=================================
 
 Relationship building is a fundamental aspect of effective leadership. In this chapter, we will explore the significance of forging strong relationships as a leader and provide techniques and strategies to develop trust, respect, and handle difficult conversations.
 

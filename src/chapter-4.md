@@ -1,5 +1,3 @@
-Chapter 4: Empathy and Social Awareness
-=======================================
 
 Empathy and social awareness are critical components of emotional intelligence. In this chapter, we will explore the importance of empathy in leadership, strategies for developing empathy skills, and techniques for enhancing social awareness.
 

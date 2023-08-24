@@ -1,4 +1,3 @@
-# Introduction
 
 Leadership is not just about technical skills and expertise, but also about emotional intelligence (EQ) - the ability to understand and manage one's own emotions and those of others. The Power of Emotional Intelligence in Leadership provides practical guidance on how to develop EQ skills for greater impact and success as a leader.
 

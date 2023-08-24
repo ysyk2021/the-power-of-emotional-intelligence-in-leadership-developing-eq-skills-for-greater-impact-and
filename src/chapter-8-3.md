@@ -1,5 +1,3 @@
-Inspiring and Motivating Employees
-=============================================
 
 In this chapter, we will delve into the importance of inspiring and motivating employees and how it contributes to developing emotional intelligence in leadership. Effective leaders understand the significance of inspiring their team members and creating a motivating work environment. By igniting passion, purpose, and intrinsic motivation, leaders can drive their employees towards greater impact and success.
 

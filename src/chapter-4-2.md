@@ -1,5 +1,3 @@
-Developing Empathy Skills
-====================================
 
 In this chapter, we will explore the importance of empathy in leadership and strategies for developing empathy skills. Empathy is a critical component of emotional intelligence (EQ) that allows leaders to understand and connect with others on a deeper level.
 

@@ -1,5 +1,3 @@
-Developing High-Performing Teams
-===========================================
 
 In today's dynamic and collaborative work environment, leaders recognize the importance of developing high-performing teams. A team's success depends not only on individual skills but also on the collective emotional intelligence (EQ) of its members. In this chapter, we will explore strategies for leaders to cultivate EQ within their teams, foster collaboration, and unleash their full potential for greater impact and success.
 

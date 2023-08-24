@@ -1,5 +1,3 @@
-Applying EQ Skills to Leadership
-===========================================
 
 Emotional intelligence (EQ) is a fundamental attribute for effective leadership. In this chapter, we will explore how leaders can apply EQ skills to enhance their effectiveness, build strong relationships, and drive success. By developing self-awareness, managing emotions, empathizing with others, and exhibiting social skills, leaders can create an environment that fosters collaboration, trust, and high-performance.
 

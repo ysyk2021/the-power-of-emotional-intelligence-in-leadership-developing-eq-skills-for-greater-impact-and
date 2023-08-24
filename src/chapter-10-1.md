@@ -1,5 +1,3 @@
-Recap of Key EQ Skills for Leaders
-==========================================================
 
 Effective leadership requires more than just technical skills and expertise. It also requires emotional intelligence (EQ) and the ability to understand and respond to the emotions of others. In this book, we have explored key EQ skills for leaders, including:
 

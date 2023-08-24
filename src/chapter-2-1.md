@@ -1,5 +1,3 @@
-Overview of Emotional Intelligence
-=============================================
 
 Emotional intelligence (EI) has emerged as a vital skillset for leaders aiming to achieve greater impact and success in today's dynamic and interconnected world. This chapter provides an overview of emotional intelligence, exploring its definition, components, and importance in leadership development.
 

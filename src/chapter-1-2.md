@@ -1,5 +1,3 @@
-Common Misconceptions About EQ
-=========================================
 
 In this chapter, we will debunk some common misconceptions about emotional intelligence (EQ). Despite its growing recognition and importance in leadership, EQ is often misunderstood. By addressing these misconceptions, we can gain a clearer understanding of EQ and its role in achieving greater impact and success.
 

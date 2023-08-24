@@ -1,5 +1,3 @@
-Chapter 6: Effective Communication
-==================================
 
 Effective communication is a critical component of emotional intelligence and effective leadership. In this chapter, we will explore the role of communication in EQ, strategies for developing effective communication skills, techniques for communicating with different personality types, and the importance of nonverbal communication.
 

@@ -1,5 +1,3 @@
-Chapter 9: Continuous Improvement and Evaluation
-================================================
 
 Developing emotional intelligence (EQ) skills is an ongoing process that requires continuous improvement and evaluation. In this chapter, we will explore strategies for tracking progress, measuring results, reflecting on self-evaluation, continuously learning and improving, and adapting to changes in the workplace.
 

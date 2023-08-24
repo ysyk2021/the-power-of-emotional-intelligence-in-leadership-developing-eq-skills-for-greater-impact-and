@@ -1,5 +1,3 @@
-Creating a Positive Work Environment
-===============================================
 
 In this chapter, we will explore the importance of creating a positive work environment and how it contributes to developing emotional intelligence in leadership. A positive work environment sets the stage for greater impact and success by fostering collaboration, engagement, and overall well-being. Leaders play a crucial role in creating and maintaining such an environment.
 

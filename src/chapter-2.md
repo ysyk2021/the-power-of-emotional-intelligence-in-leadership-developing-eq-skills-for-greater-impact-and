@@ -1,5 +1,3 @@
-Chapter 2: Defining Emotional Intelligence
-==========================================
 
 Emotional intelligence (EQ) is the ability to understand and manage one's own emotions, as well as recognize and respond to the emotions of others. In this chapter, we will provide an overview of emotional intelligence, explore the four components of EQ, and discuss how to assess your own EQ level.
 

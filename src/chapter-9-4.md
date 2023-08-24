@@ -1,5 +1,3 @@
-Adapting to Changes in the Workplace
-===============================================
 
 In today's rapidly evolving work environment, the ability to adapt to change is crucial for leaders to maintain their competitive edge. In this chapter, we will explore the importance of adapting to changes in the workplace and how emotional intelligence (EQ) skills can support leaders in navigating these transitions successfully. By embracing change and leveraging EQ, leaders can foster resilience, inspire their teams, and drive greater impact and success.
 

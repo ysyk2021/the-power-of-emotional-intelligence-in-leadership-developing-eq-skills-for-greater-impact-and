@@ -1,5 +1,3 @@
-Chapter 7: Conflict Resolution
-==============================
 
 Conflict is an inevitable part of working with others, but effective conflict resolution is critical for maintaining positive relationships and achieving common goals. In this chapter, we will explore the causes of workplace conflict, techniques for resolving conflicts, strategies for addressing difficult situations, and developing win-win solutions.
 

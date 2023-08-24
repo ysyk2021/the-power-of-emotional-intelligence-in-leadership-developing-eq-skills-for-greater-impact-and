@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Effective leadership requires more than just technical skills and expertise. It also requires emotional intelligence (EQ) and the ability to understand and respond to the emotions of others. In this chapter, we will explore the importance of emotional intelligence in leadership, common misconceptions about EQ, and benefits of developing EQ skills.
 

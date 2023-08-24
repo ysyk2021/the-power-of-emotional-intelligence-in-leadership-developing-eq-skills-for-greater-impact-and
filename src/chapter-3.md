@@ -1,5 +1,3 @@
-Chapter 3: Self-Awareness and Self-Regulation
-=============================================
 
 Self-awareness and self-regulation are critical components of emotional intelligence (EQ) and effective leadership. In this chapter, we will explore strategies for developing self-awareness skills, techniques for managing emotions, understanding triggers and hot buttons, and strategies for developing self-control.
 

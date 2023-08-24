@@ -1,5 +1,3 @@
-Final Thoughts and Advice
-=================================================
 
 In this book, we have explored the importance of emotional intelligence (EQ) in effective leadership. We have discussed key EQ skills for leaders, including self-awareness, self-regulation, motivation, empathy, and social skills, as well as strategies for continuous improvement and evaluation and adapting to changes in the workplace.
 
